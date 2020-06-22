@@ -14,3 +14,5 @@ to find and destroy the horcruxes that made Voldemort invincible.
 	* does not hesitate in telling or asking you something
 
 > My mum always said things we lose have a way of coming back to us in the end. If not always in the ways we expect.
+
+<img src="https://www.pexels.com/de-de/foto/coole-hintergrundbilder-draussen-golden-retriever-gucken-2318990/"/>
