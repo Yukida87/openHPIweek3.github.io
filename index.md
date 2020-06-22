@@ -11,7 +11,6 @@ to find and destroy the horcruxes that made Voldemort invincible.
 * direct
 * honest
 	* does not hesitate in telling or asking you something
-	
-### Thats my own quote:
+
 > I am Luna and not your Father!!! Quoting me is not nice!
 > Why do I have to say something irrelevant? :-)
