@@ -13,5 +13,4 @@ to find and destroy the horcruxes that made Voldemort invincible.
 * honest
 	* does not hesitate in telling or asking you something
 
-> I am Luna and not your Father!!! Quoting me is not nice!
-> Why do I have to say something irrelevant? :-)
+> My mum always said things we lose have a way of coming back to us in the end. If not always in the ways we expect.
