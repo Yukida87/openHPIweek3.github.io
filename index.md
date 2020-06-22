@@ -15,4 +15,3 @@ to find and destroy the horcruxes that made Voldemort invincible.
 
 > I am Luna and not your Father!!! Quoting me is not nice!
 > Why do I have to say something irrelevant? :-)
-
